@@ -55,6 +55,8 @@ And like magic, when I finished typing this out I received a response back from 
 
 August 11th, 2026 the status in workday updated to "Interview". I imagine this is a really good sign and hopefully the interview link and info can come through shortly. I have been checking my email like a hawk the past few weeks waiting for anything to update on the back end. If I had to guess, the interview would be set for Sept.
 
+---
+
 Sept. 4th, I received an invite for the in person assessment. All of the dates were for Sept leaving very little time to decide which date would work best. With all of the dates being in Sept, I did not have the ability to book a flex day or any time of time off.
 
 I chose to go with Sept. 25th, 2026 for the in person assessment centre interview. I managed to connect with a few of the July 13th FEAST takers and I know that one did the in person assessment for Sept. 9th. I reached out to check on how it went, it's hard not to look at follow up questions on the process but I want to come into this one as blind as possible.
@@ -103,6 +105,6 @@ Has me a little worried, but even so, we push forward.
 
 Oct 8th, received the rejection email that I was not successful.
 
-Overall, the process was fun and I will give it another try in 3 years. It's hard to say where I went wrong but with the process being what it is, it's channeling to figure out where I could have improved.
+Overall, the process was fun and I will give it another try in 3 years. It's hard to say where I went wrong but with the process being what it is, it's difficult to figure out where I could have improved.
 
 Although I may have not been successful this time around, I hope that anyone reading through this in the future can achieve their goal or learn from my experience. 
